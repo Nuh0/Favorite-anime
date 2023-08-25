@@ -7,3 +7,5 @@
 - Roronoa Zoro
 - Nami
 
+![alt text](![one piece](https://github.com/Nuh0/Favorite-anime/assets/142946166/ed08659a-b76a-4f78-9836-267a0ceedcde)
+)
