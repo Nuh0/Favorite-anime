@@ -12,4 +12,4 @@
 
 ### why I enjoy the show
 -1000+ epsiodes !!
-![alt text](onepiece.jpeg)
+
