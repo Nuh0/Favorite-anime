@@ -8,5 +8,6 @@
 - Nami
 ## My favorite character 
 -**Monkey.D.Luffy**
+
 ![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.crunchyroll.com%2Fseries%2FGRMG8ZQZR%2Fone-piece&psig=AOvVaw1yRCa70CYkUE6AzKGb9tR1&ust=1693086075163000&source=images&cd=vfe&opi=89978449&ved=0CA0QjRxqFwoTCND9qKPj-IADFQAAAAAdAAAAABAD![image](https://github.com/Nuh0/Favorite-anime/assets/142946166/805b8f3a-b6e4-43bd-97f5-38bf0ac80e15)
 )
