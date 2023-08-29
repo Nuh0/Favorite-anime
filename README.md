@@ -9,6 +9,7 @@
 
 ## My favorite character 
 -**Monkey.D.Luffy**
+-**I been seeing Luffy on the internet couple times he looks cool**
 
 ### why I enjoy the show
 -1000+ epsiodes !!
