@@ -12,5 +12,5 @@
 
 ### why I enjoy the show
 -1000+ epsiodes !!
-
+## One Piece sounds like a *Amazing show* I can't wait to start watching it.
 ![one piece](https://github.com/Nuh0/Favorite-anime/assets/142946166/839f48e7-4abc-4d2f-945a-721338a629a3)
